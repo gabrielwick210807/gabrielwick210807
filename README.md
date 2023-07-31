@@ -1,4 +1,4 @@
-###  CHAMPION RUSSIA 🐻🇷🇺 kkkkk
+###  CHAMPION RUSSIA 🐻🇷🇺 BRAZIL
 
 <!--
 **gabrielwick210807/gabrielwick210807** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
